@@ -6,3 +6,7 @@ GITHUN good
 done
 
 hoooooöoóœõôgjgjodgagg
+
+a sunny day 
+it rains 
+the magic power produces the conflict
