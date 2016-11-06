@@ -10,3 +10,7 @@ hoooooöoóœõôgjgjodgagg
 a sunny day 
 it rains 
 the magic power produces the conflict
+
+git git git llllaaaaaaaaaaaaa
+Nobody knows, git knows
+
